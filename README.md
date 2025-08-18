@@ -4,6 +4,6 @@ Welcome to my temporary site! I'm Stacy, and I empower health science investigat
 
 I'm currently available for small projects and would love to support you in carrying out meaningful research that would benefit from my expertise. It's a great option if you need targeted support or do not have funding for fulltime staff. Let's connect to see how I can partner with you to advance your research!
 
-Schedule a call or follow us on social media: https://linktr.ee/stacycaressolutions
+Schedule a call or follow us on social media: [LinkTree](https://linktr.ee/stacycaressolutions)
 
 Stacy Cares Solutions LLC was established in August 2025
