@@ -1,8 +1,8 @@
 # Stacy Cares Solutions LLC
 
-Welcome to my temporary site! I'm Stacy, and I empower health science investigators to turn research ideas into reality by providing expert data management and clinical research services. Services I offer include database design and setup, data cleaning, and study monitoring. 
+Welcome to my temporary site! I'm Stacy, and I empower health science investigators to turn research ideas into reality by providing expert data management and research services. Services I offer include database design and setup, data cleaning, and study monitoring. 
 
-I bring 20 years of experience in clinical research and public health -- having worked on smaller investigator-initiated trials at academic medical centers as well as larger sponsor-initiated international clinical trials (Phase 1-4). I'm experienced at conducting human subjects research under a variety of budget and resource constraints and adapting to investigators' needs. 
+I bring a keen eye for detail and 20 years of experience in clinical research and public health -- having worked on smaller investigator-initiated trials at academic medical centers as well as larger sponsor-initiated international clinical trials (Phase 1-4). I'm experienced at conducting human subjects research under a variety of budget and resource constraints and adapting to investigators' needs. 
 
 I'm currently available for small projects and would love to support you in carrying out meaningful research that would benefit from my expertise. It's a great option if you need targeted support rather than fulltime staff. Let's connect to see how I can partner with you to advance your research!
 
